@@ -8,5 +8,9 @@ Com gráficos vibrantes e uma trilha sonora cativante, "Geometry Scratch" promet
 
 
 
-https://github.com/MasterySuporte/GeometryScratch/assets/84245534/ced236c6-318b-4589-9394-1a76385a9ed7
+
+
+
+https://github.com/MasterySuporte/GeometryScratch/assets/84245534/777d8ed7-27b5-42df-b958-919354b27157
+
 
